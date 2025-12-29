@@ -1,5 +1,5 @@
 Términos y Condiciones
-Última actualización: (poné la fecha de hoy)
+Última actualización: (29/12/25)
 Al descargar, instalar o utilizar la aplicación Impostor (en adelante, “la aplicación”), aceptás los presentes Términos y Condiciones.
 1. Uso de la aplicación
 La aplicación es un juego simple de entretenimiento. El usuario se compromete a utilizarla de manera responsable y conforme a la ley vigente.
